@@ -1,1 +1,0 @@
-# thrive-system-2
